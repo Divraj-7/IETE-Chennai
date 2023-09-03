@@ -11,4 +11,4 @@ To create an IETE-CHENNAI Website using Html Css and Js🚀.
 Demo Video link 🔗:https://drive.google.com/drive/folders/1vl0eAEFQBhMCwi_dMDBBEnbUKSjHRss9
 
 
-![img icons8](https://github.com/Divraj-7/IETE-Chennai/assets/138122681/5d71c3ed-5595-4c66-a35a-1a9299d7beac)https://wa.me/qr/TBEQZZ3XPC27G1
+![img icons8](https://github.com/Divraj-7/IETE-Chennai/assets/138122681/5d71c3ed-5595-4c66-a35a-1a9299d7beac)-https://wa.me/qr/TBEQZZ3XPC27G1
